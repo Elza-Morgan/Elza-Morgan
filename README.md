@@ -1,4 +1,4 @@
-![Uploading 7.png…](
+![7](https://user-images.githubusercontent.com/119350171/210097441-42ebe363-10d5-4e75-ad7d-52175026e5f0.png)
 # HELLO THERE 👋
 ✨I hope you have a great day 😊
 
