@@ -1,4 +1,4 @@
-!(https://discord.com/channels/@me/729868800878706798/1058429426192363571)
+<img src="https://cdn.discordapp.com/attachments/729868800878706798/1058429426246885507/liza2.png" alt="Alt text" title="Optional title">
 # HELLO THERE 👋
 ✨I hope you have a great day 😊
 
