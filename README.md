@@ -1,5 +1,5 @@
 # HELLO THERE 👋
-🌱 I’m currently learning Web developemnt 
+✨I hope you have a great day 😊
 
 <!--
 **Elza-Morgan/Elza-Morgan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
