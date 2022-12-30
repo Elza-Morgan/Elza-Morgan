@@ -1,3 +1,4 @@
+!(https://discord.com/channels/@me/729868800878706798/1058429426192363571)
 # HELLO THERE 👋
 ✨I hope you have a great day 😊
 
