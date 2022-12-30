@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/729868800878706798/1058429426246885507/liza2.png" alt="Alt text" title="Optional title">
+![4](https://user-images.githubusercontent.com/119350171/210095929-16c12050-9148-44a9-af0b-987590d3aa4a.png)
 # HELLO THERE 👋
 ✨I hope you have a great day 😊
 
