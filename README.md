@@ -1,4 +1,4 @@
-![7](https://user-images.githubusercontent.com/119350171/210097441-42ebe363-10d5-4e75-ad7d-52175026e5f0.png)
+![6](https://user-images.githubusercontent.com/119350171/210097552-0720dd13-bb26-44e7-a901-47bdbe124a1e.png)
 # HELLO THERE 👋
 ✨I hope you have a great day 😊
 
